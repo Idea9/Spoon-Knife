@@ -1,0 +1,1 @@
+tja to jest c kurwa
